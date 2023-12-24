@@ -10,7 +10,7 @@
 <img width="270" src="https://github.com/offlineflood/html-slayd-codes/assets/108521240/a88f7038-8b19-4c7d-abdc-9c6efbf6877f" alt="error url."/>
 <img width="270" src="https://github.com/offlineflood/html-slayd-codes/assets/108521240/a099da5c-72fc-40ca-b7d3-a86a29bcbff1" alt="error url."/>
 </div>
-  
+  <br/><br/>
   ❐ [𓅓𝘋𝘦𝘨𝘎𝘪𝘹𝘔𓅓](https://t.me/DegGixM)
   
   ❐ [❖𝘿𝙚𝙟𝙖𝙫𝙪 𝙏𝙚𝙖𝙢❖](https://t.me/DejavuTeam)
